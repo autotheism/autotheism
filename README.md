@@ -3,4 +3,4 @@
 <p align="center">rick or prime , he/him</p>
 <p align="center">19+ </p>
 <p align="center">happily married </p>
-  <p align="center">  <a href="url">⟡ strawpage</a> </p>
+  <p align="center">  <a href="https://pronouns.cc/@prickcest">⟡ prns.cc</a> </p>
