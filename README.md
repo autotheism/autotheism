@@ -1,4 +1,4 @@
-<p align="center"> <i>one maniac at a time we will take it back .</i></p>
+<p align="center"> <i>if they knew how misery loved me .</i></p>
 <p align="center">
   <img src="https://files.catbox.moe/adozgj.gif" width="280" height="280"/></p>
  <p align="center"> ⋆</p>
